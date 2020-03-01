@@ -1,3 +1,3 @@
 # MaryRecipes
 Mary's Recipes  
-These are some of my cooking recipes. 
+These are some of my *cooking* recipes. 
