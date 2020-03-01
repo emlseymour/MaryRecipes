@@ -1,41 +1,30 @@
- 
-
-## BANANA-PINEAPPLE NUT BREAD    
+## BANANA NUT BREAD
 
 ### Ingredients:
 
-- 3 C. all purpose flour          
-- 3 eggs
-- ~~3/4 tsp. salt~~                 
-- ~~1 C. oil~~
-- ~~1 tsp. baking soda~~            
-- ~~2 C. mashed ripe bananas~~
-- ~~1 tsp. cinnamon~~              
-- ~~1 (8 oz.) can crushed pineapple~~ 
-- ~~1/2 to 1 C. chopped walnuts~~     
-- ~~2 tsp. vanilla~~
-=======
-- 3/4 tsp. salt                
-- 1 C. oil
-- 1 tsp. baking soda          
-- 2 C. mashed ripe bananas
-- 1 tsp. cinnamon
-- 1 (8 oz.) can crushed pineapple
-- 1/2 to 1 C. chopped walnuts
-- 2 tsp. vanilla
->>>>>>> c354a38c77d2664d8ba28201dc61559c4e1978bf
-- 2 C. sugar
+3 C. all purpose flour  
 
+3 eggs. 
 
+3/4 tsp. salt   
 
-### Instructions
+1 C. oil. 
 
-In large mixing bowl, sift flour, salt, baking soda, & cinnamon together. Add nuts & mix well. In a separate bowl, combine sugar, eggs, oil, mashed bananas, crushed pineapple, & vanilla. Blend together well. Stir sugar-egg mixture into flour mixture, mixing until moistened. Bake 60-70 minutes at 350 degrees.  
+1 tsp. baking soda 
 
+2 C. mashed ripe bananas. 
+
+1 tsp. cinnamon  
+
+1 (8 oz.) can crushed pineapple   
+
+1/2 to 1 C. chopped walnuts  
+
+2 tsp. vanilla. 
+
+2 C. sugar
+
+### Instructions:
+
+In large mixing bowl, sift flour, salt, baking soda, & cinnamon together. Add nuts & mix well. In a separate bowl, combine sugar, eggs, oil, mashed bananas, crushed pineapple, & vanilla. Blend together well. Stir sugar-egg mixture into flour mixture, mixing until moistened. Bake 60-70 minutes 350 degrees.   
 Makes 2 loaves or 12 muffins 
-
-
-
-[DSCF0002](pix/DSCF0002.JPG)
-
- 
