@@ -28,3 +28,5 @@
 
 In large mixing bowl, sift flour, salt, baking soda, & cinnamon together. Add nuts & mix well. In a separate bowl, combine sugar, eggs, oil, mashed bananas, crushed pineapple, & vanilla. Blend together well. Stir sugar-egg mixture into flour mixture, mixing until moistened. Bake 60-70 minutes 350 degrees.   
 Makes 2 loaves or 12 muffins 
+
+![DSCF0002](pix/DSCF0002.JPG)
