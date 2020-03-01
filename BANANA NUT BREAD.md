@@ -5,7 +5,7 @@
 ### Ingredients:
 
 - 3 C. all purpose flour          
-- ~~3 eggs~~
+- 3 eggs
 - ~~3/4 tsp. salt~~                 
 - ~~1 C. oil~~
 - ~~1 tsp. baking soda~~            
