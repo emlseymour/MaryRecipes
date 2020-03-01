@@ -5,15 +5,15 @@
 ### Ingredients:
 
 - 3 C. all purpose flour          
-- ~~3 eggs~~
-- ~~3/4 tsp. salt~~                 
-- ~~1 C. oil~~
-- ~~1 tsp. baking soda~~            
-- ~~2 C. mashed ripe bananas~~
-- ~~1 tsp. cinnamon~~              
-- ~~1 (8 oz.) can crushed pineapple~~ 
-- ~~1/2 to 1 C. chopped walnuts~~     
-- ~~2 tsp. vanilla~~
+- 3 eggs
+- 3/4 tsp. salt                
+- 1 C. oil
+- 1 tsp. baking soda          
+- 2 C. mashed ripe bananas
+- 1 tsp. cinnamon
+- 1 (8 oz.) can crushed pineapple
+- 1/2 to 1 C. chopped walnuts
+- 2 tsp. vanilla
 - 2 C. sugar
 
 
@@ -26,6 +26,6 @@ Makes 2 loaves or 12 muffins
 
 
 
-![DSCF0002](/Users/mcmoore/GitHub/MaryRecipes/pix/DSCF0002.JPG)
+[DSCF0002](pix/DSCF0002.JPG)
 
  
