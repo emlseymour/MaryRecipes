@@ -14,6 +14,16 @@
 - ~~1 (8 oz.) can crushed pineapple~~ 
 - ~~1/2 to 1 C. chopped walnuts~~     
 - ~~2 tsp. vanilla~~
+=======
+- 3/4 tsp. salt                
+- 1 C. oil
+- 1 tsp. baking soda          
+- 2 C. mashed ripe bananas
+- 1 tsp. cinnamon
+- 1 (8 oz.) can crushed pineapple
+- 1/2 to 1 C. chopped walnuts
+- 2 tsp. vanilla
+>>>>>>> c354a38c77d2664d8ba28201dc61559c4e1978bf
 - 2 C. sugar
 
 
@@ -26,6 +36,5 @@ Makes 2 loaves or 12 muffins
 
 
 
-![DSCF0002](/Users/mcmoore/GitHub/MaryRecipes/pix/DSCF0002.JPG)
 
  
