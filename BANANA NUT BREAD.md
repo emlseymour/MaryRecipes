@@ -2,27 +2,25 @@
 
 ### Ingredients:
 
-3 C. all purpose flour  
+- 3 C. all purpose flour  
+- 3 eggs. 
 
-3 eggs. 
+- 3/4 tsp. salt   
 
-3/4 tsp. salt   
+- 1 C. oil. 
 
-1 C. oil. 
+- 1 tsp. baking soda 
 
-1 tsp. baking soda 
+- 2 C. mashed ripe bananas. 
 
-2 C. mashed ripe bananas. 
+- 1 tsp. cinnamon  
 
-1 tsp. cinnamon  
+- 1 (8 oz.) can crushed pineapple   
 
-1 (8 oz.) can crushed pineapple   
+- 1/2 to 1 C. chopped walnuts  
 
-1/2 to 1 C. chopped walnuts  
-
-2 tsp. vanilla. 
-
-2 C. sugar
+- 2 tsp. vanilla. 
+- 2 C. sugar
 
 ### Instructions:
 
