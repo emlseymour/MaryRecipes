@@ -26,6 +26,13 @@
 
 - 1 c chopped pecans
 
+**Cream butter & shortening together. Add sugar & beat; add egg yolks
+and beat well. Combine flour & soda and add to cream mixture. Add
+buttermilk & vanilla, followed by coconut & pecans. Fold in egg whites.
+Pour into 3) 8” (greased & floured) pans. Bake 25 minutes at 350℉.**
+
+
+
 #### Frosting:
 
 - 1 8 oz cream cheese, softened
@@ -37,13 +44,6 @@
 - 1 tsp vanilla
 
 - 1 c chopped pecans
-
-**Cream butter & shortening together. Add sugar & beat; add egg yolks
-and beat well. Combine flour & soda and add to cream mixture. Add
-buttermilk & vanilla, followed by coconut & pecans. Fold in egg whites.
-Pour into 3) 8” (greased & floured) pans. Bake 25 minutes at 350℉.**
-
-**Frosting:**
 
 **Combine all ingredients and mix well. Apply on tops and sides of layers. Refrigerate.**
 
