@@ -2,7 +2,7 @@
 
 ### Ingredients
 
-- 2 lbs breakfast sausage
+- 2 lbs pork breakfast sausage
 
 - 6 lg potatoes, cubed
 
