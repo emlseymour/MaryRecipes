@@ -1,6 +1,6 @@
 ## Peaches and Cream Cheese Cake
 
-- ¾ c flour 3 T. softened butter
+- ¾ c flour 
 
 - 3 T. softened butter
 - 1 tsp baking powder 
@@ -36,3 +36,4 @@
 
 
 
+ 
