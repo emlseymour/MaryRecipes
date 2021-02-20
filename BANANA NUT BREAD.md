@@ -28,6 +28,7 @@ In large mixing bowl, sift flour, salt, baking soda, & cinnamon together. Add nu
 Makes 2 loaves or 12 muffins 
 
 #### CREDITS:
+
 Monta "Go" Walker
 
 ![recipe_11345_1776139429](pix/recipe_11345_1776139429.jpg)
