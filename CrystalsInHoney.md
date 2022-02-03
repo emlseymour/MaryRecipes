@@ -1,6 +1,6 @@
-## The Surprising Crystals Hiding in Honey
+# The Surprising Crystals Hiding in Honey
 
-##### *Physicist Helen Czerski explores the science in honey: Bees work hard to make honey a stable liquid, but sometimes it crystallizes into a solid in our kitchen cabinets. Here’s why. By Physicist Helen Czerski, [published in WSJ, Jan 27, 2022](https://www.wsj.com/articles/the-surprising-crystals-hiding-in-honey-11643313927?page=1).* 
+#### *Physicist Helen Czerski explores the science in honey: Bees work hard to make honey a stable liquid, but sometimes it crystallizes into a solid in our kitchen cabinets. Here’s why. By Physicist Helen Czerski, [published in WSJ, Jan 27, 2022](https://www.wsj.com/articles/the-surprising-crystals-hiding-in-honey-11643313927?page=1).*
 
 ![HoneyCrystals](pix/HoneyCrystals.jpg)
 
