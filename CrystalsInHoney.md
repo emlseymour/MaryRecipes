@@ -16,6 +16,7 @@ Types of honey with higher ratios of glucose are more likely to form crystals. T
 
 After many months, crystallization may continue and spread through the jar, or enough glucose may have solidified into crystals to form a balance in the rest of the honey. Meanwhile, the rest of the honey now has a higher proportion of water: Each dissolved glucose molecule is surrounded by a cluster of five water molecules, but when it becomes part of a crystal it gives up four of its molecular groupies, leaving more water free. If that process carries on and if the honey is also left uncapped and exposed to air so it can absorb even more water, the liquid honey may become dilute enough for specialized yeasts in the honey to start to grow and cause spoilage. That’s exactly what the bees worked to avoid.
 
-Fortunately, there’s an easy way to get rid of the crystals and restore balance: Immerse the jar in hot water (around 120 degrees) for a few minutes, and the solid glucose crystals will redissolve, taking the honey back to its original state.
+***Fortunately, there’s an easy way to get rid of the crystals and restore balance: Immerse the jar in hot water (around 120 degrees) for a few minutes, and the solid glucose crystals will redissolve, taking the honey back to its original state.***
 
 So I spooned some crystallized honey into my cooking without worrying—it’s safe and tastes the same—and warmed up the rest to re-liquify it. I don’t mind the crystals. They’re a reminder of the molecular secrets that honey is hiding inside itself. 
+
